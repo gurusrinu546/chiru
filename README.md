@@ -1,2 +1,6 @@
 # chiru
 chiru repo
+ 
+
+HI I made the changez at firzt time.....
+ thankyou...
